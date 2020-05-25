@@ -8,4 +8,6 @@ You don’t need to know any advanced level algorithm or data-structure to get s
 
 Let's connect: https://www.instagram.com/iyashjayesh/ 
 
+# you can find all the blogs here: https://medium.com/@iyashjayesh
+
 Stay Tuned for more! Inspired to be Inspire. 
